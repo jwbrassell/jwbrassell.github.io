@@ -1,7 +1,6 @@
-
-**Mission:** Get Shane the reoccuring Ca$h money he deserves from his service to the United Fucking States of Gawd Damn America!
-**How:** Get Shane to the TX Vet commision to have them do this on his behalf for fucking free
-**Why:** Long term financial security. Whatever ratig you get, you get money for you, your wife, and each kid. So, each month you hold off on this you're leaving 1 - 2000 dollars on the table tax fee and saying no thanks. That's okay though because the Catch me outside girl is a millionaire. 
+**Mission:** Get Shane the reoccuring Ca$h money he deserves from his service to the United Fucking States of Gawd Damn America!  
+**How:** Get Shane to the TX Vet commision to have them do this on his behalf for fucking free  
+**Why:** Long term financial security. Whatever ratig you get, you get money for you, your wife, and each kid. So, each month you hold off on this you're leaving 1 - 2000 dollars on the table tax fee and saying no thanks. That's okay though because the Catch me outside girl is a millionaire.   
 
 + **What needs to happen (really, what Justin would do)**: 
   - find your VA binder and put it in a consistent place
