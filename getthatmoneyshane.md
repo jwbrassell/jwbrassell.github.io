@@ -36,7 +36,10 @@
 
 
 
-+ **Where can I book a location**: https://www.tvc.texas.gov/claims_appointments/ 
++ **Where can I book a location**: 
+  - https://www.tvc.texas.gov/claims_appointments/ 
+  - https://outlook.office365.com/owa/calendar/SanAntonioTVC@tvc.texas.gov/bookings/
+
 + **Which location did Justin use**: 
   - San Antonio Frank Tejeda Outpatient Clinic
   - 5788 Eckhert Rd; Rm. 2A122; San Antonio, TX 78240
